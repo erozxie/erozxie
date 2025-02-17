@@ -9,7 +9,7 @@
 
 *mika*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*16*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*she/her&nbsp;&nbsp;,&nbsp;&nbsp;they/them*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;**ONLY**
 
-**my beautiful boy [@NovaSaidKYs](https://github.com/NovaSaidKYs)
+**my beautiful boy [@NovaSaidKYs](https://github.com/NovaSaidKYs)**
 
 </div>
 
