@@ -23,4 +23,4 @@
 
 *"The cutest&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;in the whole world."*
 # my friends
-[@trafaglaw](https://github.com/trafaglaw) [@lawyeerr](https://github.com/lawyeerr) [@reversedcurse](https://github.com/reversedcurse) [@sanjeyer](https://github.com/sanjeyer) [@Drums0flib3ration](https://github.com/Drums0flib3ration) [@suspicioussoup](https://github.com/suspicioussoup) [@H34rtS1CK](https://github.com/H34rtS1CK) [@eliechxnnn](https://github.com/eliechxnnn) [@websh00ter](https://github.com/websh00ter) 
+[@suspicioussoup](https://github.com/suspicioussoup) [@H34rtS1CK](https://github.com/H34rtS1CK) [@websh00ter](https://github.com/websh00ter) 
