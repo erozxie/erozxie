@@ -9,8 +9,7 @@
 
 *mika*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*16*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;*she/her&nbsp;&nbsp;,&nbsp;&nbsp;they/them*&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;.&nbsp;&nbsp;**ONLY**
 
-💍.☁️⋅♡𓂃 ࣪ ִֶָ☾. [@lust4lead](https://github.com/lust4lead)**
-
+💍.☁️⋅♡𓂃 ࣪ ִֶָ☾.
 </div>
 
 ![image](https://github.com/user-attachments/assets/8c77bcab-ccff-4696-8266-5bc63cd1beaa)
